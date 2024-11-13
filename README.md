@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Student
 -------
 
-* 🌍  I'm based in S
+* 🌍  I'm based in Songkhla, Thailand
 
 ### Skills
 
